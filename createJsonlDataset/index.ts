@@ -41,13 +41,13 @@ async function processInvoiceFiles() {
   const files = await readdir(mdDataPath);
 
   // Filter for .md files and take first 5
-  const mdFiles = files.filter((file) => file.endsWith(".md")).slice(0, 100);
+  const mdFiles = files.filter((file) => file.endsWith(".md"));
 
   console.log(
     `Processing first ${mdFiles.length} files from mdData directory:\n`,
   );
 
-  const outputPath = join(process.cwd(), 'invoiceDataset.jsonl');
+  const outputPath = join(process.cwd(), "invoiceDataset.jsonl");
   let savedCount = 0;
 
   // Process each file
@@ -60,7 +60,7 @@ async function processInvoiceFiles() {
       const content = await readFile(filePath, "utf-8");
       const title = fileName.replace(".md", "");
 
-      const userPrompt = `(original: ${title}.pdf markdown: ${title}.md) ${content}`
+      const userPrompt = `(original: ${title}.pdf markdown: ${title}.md) ${content}`;
 
       console.log(`=== Processing File ${index + 1}: ${title} ===`);
 
@@ -76,22 +76,24 @@ async function processInvoiceFiles() {
       const extractedData = response.choices?.[0]?.message?.content;
       if (extractedData) {
         console.log("Extracted data:", extractedData);
-        
+
         // Create conversation object in the required format
         const conversation = {
           messages: [
             { role: "system", content: systemPrompt },
             { role: "user", content: userPrompt },
-            { role: "assistant", content: extractedData }
-          ]
+            { role: "assistant", content: extractedData },
+          ],
         };
-        
+
         // Append to JSONL file immediately
-        const jsonLine = JSON.stringify(conversation) + '\n';
-        await appendFile(outputPath, jsonLine, 'utf-8');
+        const jsonLine = JSON.stringify(conversation) + "\n";
+        await appendFile(outputPath, jsonLine, "utf-8");
         savedCount++;
-        
-        console.log(`✅ Saved conversation ${savedCount} to invoiceDataset.jsonl`);
+
+        console.log(
+          `✅ Saved conversation ${savedCount} to invoiceDataset.jsonl`,
+        );
       } else {
         console.log("No data extracted");
       }
