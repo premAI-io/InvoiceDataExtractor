@@ -1,0 +1,101 @@
+China ؛؛hite
+Petersteinweg  17
+04107  Leipzig
+steuernr.  231-244-09136
+
+Rechriung  Nr.  915
+
+lisch  #18
+
+1  X  Gr,Apfelschorle
+2  X  Schwarzbier  0,5
+1  X  XlLi  Mai
+1  X  Belling  Suppe
+1  X  Ente  Ylng  Yang
+1  X  SG2  Canton  Ente
+1  X  Mango  lassi
+
+lotal
+
+Nettoumsatz
+Steuersumme
+Verkäufe 19^ 1nkl .
+Mwst 19*
+Verkäufe 7* inkl .
+Mwst 7*
+Mastercard
+
+4)50
+11,00
+5,50
+4,90
+19,90
+13,90
+5,50
+
+65,20
+
+58,9๕
+6,24
+21,00
+3,35
+44,20
+2
+
+65,2.
+
+1
+1
+2
+2
+2
+2
+1
+
+1
+1
+2
+2
+
+17936  ؛
+
+26.10,2022 ا
+
+Seq.-Nr.
+I  S/N:  2717953
+Beginn/Ende:  26. 10.2022  18:58
+20:25
+Transaktion:  17935
+ا  Signaturzähler:  55019
+g4ZfF-v5KKm-VoxQy-u40Q6-lXwzJ"Y/IVC-2yg+6-
+L+XYl-FBLmO-QS/d5-yAd؛؛J-bJ+JN-m/G4R-S5RAb-
+9BTfU-iWHIl-DlBRf-Gya3W-UFZS1-QTLs4-E2kNk-
+gYQpx-Yb٧'cF-q5LFg-jK7JD-١/nJ
+
+20:25  26.10.2022  2  Bediener  2
+
+Bewirtungsaufwand-Angaben
+(Par.4  Abs.5Ziff.2  EstG)
+
+Bewirtete  Person(eri):
+
+AnlaB  der  Bewirtung:
+
+Höhe  der  Aufwendungen:
+
+bei  Bewirtung  im  Restaurant
+
+in  anderen  Fällen:
+
+Ort
+
+Datum
+
+Unterschrift
+
+Sie  wurden  bedient  voti:
+
+Bediene:  2
+
+Vielen  Dank  für  Ihren  Besuch
+

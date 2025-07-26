@@ -1,0 +1,38 @@
+.¡iHorizonParking
+46؟:1ท
+
+A٢ea^.D.
+
+lt،.؟.
+
+!SS.  Daie
+
+Fee
+
+Mach!ne  !.D.
+
+Ì
+
+Dlsp!ay on  Dashboard.
+Not transferab!e.
+
+VAT  No.14324746ه
+
+SEE NOtICE BOARD FOR
+TERMS & CONDIT.ONS
+
+This ticket permits you to park !n accordance with
+the regulations and must be displayed inside the
+windscreen of the vehicle.
+
+Failure to do so may render you liable to a
+'Parking Charge Notice.
+
+No responsibility can be taken for loss of or
+any damage to (a) any vehicle (b) anything in or
+on or about the vehicle however such loss or
+
+damage
+
+be caused.
+

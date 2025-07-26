@@ -1,0 +1,166 @@
+Online-Ticket
+
+ICE Fahrkarte
+Fahrtantritt am 24.01.2020
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Hamburg+City
+Über:
+Storno kostenfrei bis 1 Tag vor 1. Geltungstag.
+
+VIA: HAR*(UE*H*BI/HB*OS*MS)*DO
+
+ Bochum+City, mit ICE
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+ICE Fahrkarte
+Reservierungen
+Summe
+
+69,55€
+0,00€
+69,55€
+
+Preis
+
+1
+2
+
+MwSt D: 19%
+
+MwSt (D) 7%
+
+69,55€
+
+69,55€
+
+4,55€
+
+4,55€
+
+Hinfahrt:
+Gültig ab:
+
+24.01.2020
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+69,55€
+23.01.2020
+
+VU-Nr
+Gen-Nr
+
+4556695619
+NMJCCS
+
+Transaktions-Nr
+
+693472
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 23.01.2020 15:59 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 24.01.2020
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+TH9ZKM
+
+Halt
+Hamburg Hbf
+Hannover Hbf
+Hannover Hbf
+Bochum Hbf
+
+Gleis
+
+Datum Zeit
+24.01.
+24.01.
+24.01.
+24.01.
+
+ab 10:24 14
+an 11:38 3
+ab 11:56 11
+an 14:01 3
+
+Produkte
+ICE 75
+
+IC 2011
+
+Reservierung
+1 Sitzplatz, Wg. 11, Pl. 76, 1 Fenster, Großraum,
+Nichtraucher, Res.Nr. 8063 3020 2130 44
+1 Sitzplatz, Wg. 12, Pl. 86, 1 Fenster, Abteil,
+Nichtraucher, Res.Nr. 8063 3019 2442 08
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+TH9ZKM
+
+Seite 1 / 1
+

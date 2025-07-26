@@ -1,0 +1,61 @@
+٠***«٠**٠*٠***٠٠*٠٠*٠****
+
+Noels
+Ballroom
+Kurt  Eisner  str.43
+
+ ه
+
+4275
+
+Leipzig
+
+****.*....***أ;***.*.*****
+
+¿wlschenrechnung
+
+Tisch  «108
+
+2X4,80
+
+Guinness
+
+9,60
+
+2X4,80
+
+Nowcast 1e
+Brown  Ale
+
+9,60
+
+1 x4,80
+0,s٦  Murphys
+
+4,80
+
+2x3,80
+0,4١  Spezi
+
+Total
+Umsatz  19%  inkl
+
+7.60
+
+31  >60
+
+31>60
+5,05
+
+MwSt  19%
+22:25  16.8.2019  Jule
+Kassendruckei'  2
+
+46
+
+Vielen  Dank
+für  Ihren  Besuch
+Tel .0341-3032007
+
+DE  209273664
+

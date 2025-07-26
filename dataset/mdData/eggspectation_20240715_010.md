@@ -1,0 +1,43 @@
+Eggspectation Carlton
+45 Carlton Street
+toronto, ON
+Canada, Μ5Β2Η9
+٦'el-+14165'١91880
+Printed June 17. 2024 at 9:42 AM
+
+June 17, 2024 at 9:42 AM
+
+Table: 306, 1 guest
+Party Name: 4
+HST#: 719164105
+
+Ordert':
+166576
+
+FOH:Joss
+
+Freshly Squeezed Orange Juioe
+Smores French Toast
+Premium-Brew Filtered Coffee
+
+$8-95
+$19.95
+$4.25
+
+Sub Total
+HSI
+
+$33.15
+$4.31
+
+Total
+
+537.46
+
+Hope yorr enjoyed tfie
+Dont forget to review ’ا
+
+experience!
+us on google
+
+؛

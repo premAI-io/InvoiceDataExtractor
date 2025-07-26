@@ -1,0 +1,295 @@
+MEDIANARK1-
+TV･-H1fi-E1ektro-GnlbHG[,11theI､s(10!"f
+EinkaufsZ8rltr叩NDV&
+06237 I職"周
+り胤, 0〃1／ 2鰯43-(cid:631)333
+
+2655296
+6鯛f
+WSPEAKER
+ZI:13SOUNI)6AR
+
+iptaI EUR
+
+(cid:631)(cid:631)
+
+(cid:631)(cid:631)
+
+(cid:631)(cid:631)
+
+(cid:631)(cid:631)
+
+(cid:631) (cid:631)
+
+(cid:631)
+
+(cid:631)
+
+(cid:631)
+
+(cid:631)(cid:631)
+
+(cid:631)
+
+(cid:631)
+
+(cid:631)
+
+(cid:631)(cid:631)
+
+(cid:631)
+
+224,9()h
+
+■■ ■−−q〜● 軸\ 口 −−
+
+224，99
+
+1#: *
+
+Kun'ienl:IB1""'
+
+MediaMtii(cid:631)(cid:631)kt
+'IV-HIf'I- E.lektrO (jIWIji"|
+
+ANEKZ -
+
+NOVa (;Ventl6 1
+
+06237 1el｣｢ld
+
+20'(16,2022
+13; lj3134111w･
+33期
+0ﾉ0745
+
+Bezdhlun9
+K0i1tdktl()tj
+‘齢.i.i MASTERCARI)
+
+0dtillll :
+ljhr2611: :
+恥|軸‐NI
+TI､副(ie"M｢
+
+Ni" "
+VI｣-NI- ｡
+
+撚'縄州-NI(cid:631) (cid:631)
+
+P"-InfO
+AS-Zelt20.08.
+
+############45260001)
+8“0〔104鋤
+448957
+654鞭456
+OO ()7509
+13:03Uhi、
+
+AS-pmc-'C()鵬麗00375"
+
+‘鮒；鳥ﾙ棚’
+
+BeiragEMR
+
+224,99
+
+Ii:1l･11ur19el･fC19t
+
+8itt@8烏陀9dufbel.l<IIIi､er1
+
+II1fOI･nldti ()nerl ZII｢
+
+0dtenve洞珊榊gdurch
+NNN,pay()11e'c"/d"v()
+
+ilASifRCARD
+
+Neth]'WarerMelt: (b)
+
+19｣00%州囎iblb)
+
+.i l･Icl .
+
+潔4．99
+
+,"
+
+V1eleil OankfUr Ihrel, finkduf&
+!ji''tdu"hinnerhalbl4.｢d"
+ロ獄{1職l(cid:631) (cid:631)榊柵淵!j,｡,
+
+稗ネ榊榊‘御;＊:ドネ******************;f･***.*".f*4;
+11･arl"ktlOI-16nuliIIIIB1- ; 57709
+3"l･trlati｣III ;
+Fnd(jatum:
+1.SE-961' 1e｢1rILIMwIi#|- :
+
+20.08｡2022 13:り3144
+20』08.2022 131041(cid:631) :03
+
+鮪5iaf6b3395839bld9c3b"46e3479a29178fl
+
+762I､)32cfc4c8b.72d.1 152da2"a
+
+蝋；職伽剛;;……劇”
+
+ONI<190RfMZIjU/RZxW6151CJ!･GHAIII･Mi5(18"IVW
+I)inl/+AI11ulUBRl.IJxyhWC/1IIiekm54w6MCGHnsA
+WIVSNok3PAhKI11
+*期{**林**榊榊*神*＊抑､*稗****＊僻＊林榊米桝-本林
+
+46155
+
+11048
+
+105
+
+711)52I)(cid:631)O8｡2022 13:94
+
+|’
+
+lllillillllllllillllillllﾘ||||||lllill%I||| ||lll
+
+46155{)W431)1 ()52022(1820"|30"
+
+LqI I lUl 1UごdUWlレハlUI IUdI I
+II l9けIⅡしUW上ILごIUピリピ1Jご' 1．ハI1UdbUMIごUILl9
+genannteUnternehmen,dieMedia-SaturnDeutschlandGmbHund
+|ngenicowirdfernergemeldet,wenneineLastschriftnichteingel6st
+wurde(ROcklastschrift).WennSie imZusammenhangmitdem
+WiderrufeinerLastschrifterklartermaBenRechteausdem
+GrundgeSChaft(z.B・Sachmangel)geltendgemachthaben,wirddie
+Meldungumgehendgel6scht・ZudemwerdendieZahlungsdatenzur
+VerhinderungvonKartenmissbrauchgemeinsammit den
+ROcklastschriftdatenzur BegrenzungdesRisikos von
+ZahlungsausfallendurchdieMedia-SaturnDeutschlandGmbH
+gespeichertundgenutzt, Ingenicoerteilt insoweitauchanandere
+HandleridieanihremSystemangeschIossensind,Empfehlungen,
+obeineKartenzahlungmitUnterschriftakzeptiertwerdenkann.Soweit
+eineKartenzahlungmitUnterschn廿nichtakzeptiertwird,bestehtbei
+positiverAutorisierungdurchdaskartenausgebendeKreditinstitut
+dieM6glichkeit,dieZahlungdurchEingabederPINdurchzuf6hren.
+v,−． ､−．− ”. ‘−． .
+− ．“.−−． ． こ',c imAushangtext undunter
+, .ー…‐
+www・lngenIco・de/Paymen(-ServlCeS．
+
+− ，
+
+I lau,喝c 、_L‐ ‐. .
+
+SEPA-Lastschri侭mandat
+lcI ‘ cl l
+､ ‘･c,tiggenannteUnternenmensowiedie
+ingenicoPaymentServicesGmbH,Daniei-Goldbach-Stml7-19,40880
+Ratingen("Ingenico"),Glaubigel"IDDE16EO100000020245einmalig
+eineZahlungvonmeinemumseitiggenanntenKontoperLastschrift
+einzuziehen.ZugleichweiseichmeinKreditinstitutan,diesevom
+umseitiggenanntenUnternehmengezogeneLastschri廿einzuI6sen･
+Hinweis: Ichkann innerhalbvonachtWochen, abdem
+Belastungsdatum,dieErstattungdesbelastetenBetragesvedangen.
+Esgeltendabei diemitmeinemKreditinstitutvereinbarten
+Bedingungen.
+
+ImFalleeinerNichteinl6sung(RUcklastschrift)ermachtigeichdas
+umseitiggenannteUnternehmen,dieForderungsamtentstandenen
+Kostenbinnen30Tagenerneuteinzuziehen.Weiterweiseichmein
+KIGditinstitutunwidem｣flichan,demumseitiggenanntenUnternehmen
+sowiederMedia-Satur｢lDeutschlandGmbHmelnenNamensamt
+AnschnftzurGelte, IJI J ,achungJe1 Fordc!u, ,g1 I ,itzulc,leI'.Bu1 won
+mirzuvertretende,!Nichleinl6sungenverpflichteichmich,dadurch
+entstehendeKostenzuersetzen．
+
+Unterschrift(Zahlungsdatenumseitig)
+
+DatenschutzrechtIichelnfonnation
+lhreZahlungsdaten (旧AN/BIC, Kartenverfal lsdatum,
+Kartenfolgenummer, Datum, Uhrzeit, Zahlungsbetrag,
+Terminalkennung,Ort,Unternehmen)werdenzurKartenprUfungund
+Zahlungsabwicklunganlngenicoweitergegeben.Andasumseitig
+genannteUnternehmen,dieMedia-SaturnDeutschlandGmbHund
+Ingenicowirdfernergemeldet,wenneineLastschriftnichteingel6st
+wurde(RUckiastschrift).WennSie imZusammenhangmitdem
+WiderrufeinerLastschrift erkl台rtermaBenRechteausdem
+Grundgeschaft(z.B・Sachmangel)geltendgemachthaben,wirddie
+Meldungumgehendgel6scht・ZudemwerdendieZahlungsdatenzur
+VerhinderungvonKartenmissbrauchgemeinsammitden
+Rpckiastschriftdaten zur Begrenzungdes Risikos von
+Zahlungsausfal lendurchdieMedia-SaturnDeutschlandGmbH
+gespeichertundgenutzt. Ingenicoerteilt insoweitauchanandere
+HandlelidieanihremSystemangeschiossensind,Empfeh!ungen,
+obeineKartenzahlungmitUnterschn廿akzeptiertwerdenkann.Soweit
+eineKaltenzahiungmitUnterschriftnichtakzeptiertwird,bestehtbei
+positiverAutorisierungdurchdaskartenausgebendeKreditinstitut
+dieM6glichkeit,dieZahlungdurchEingabederPINdurchzufUhlen.
+W厚』Lc!c l
+1 IIuIuI 'ul,uIic1, findeII Sie imAushangtextundunter
+www･ingenico.de/payment-seivices.
+
+(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)(cid:631)
+
+SE恥･La写鱈ch前代mandat
+lchermachtigedasumseitiggenannteUnternehmensowiedie
+IngenicoPaymentServicesGmbH,Daniel-Goldbach-St[17-19,40880
+Ratingen(,,Ingenico"),GlaubigeralDDE16EO100000020245einmalig
+eineZahlungvonmeinemumseitiggenanntenKontoperLastschrift
+elnzuziehen･ZugleichweiseichmeinKreditinstitutan,diesevom
+umseitiggenanntenUnternehmengezogeneLastschri廿einzul6sen・
+Hinweis: Ich kann innerhalbvonachtWochen, abdem
+Bela､ungsdatum,dieErstattungdesbelastetenBetragesverlangen.
+Esgeltendabei diemitmeinemKreditinstitutvereinbarten
+Bedingungen.
+
+ImFalleeinerNichteinl6sung(RUckiastschri廿)ermachtigeichdas
+umseitiggenannteUnternehmen,dieForderungsamtentstandenen
+Kostenbinnen30Tagenerneuteinzuziehen.Weiterweiseichmein
+K陀ditinstitutunwidenuflichan,demumseitiggenanntenUntemehmen
+sowiederMedia-SaturnDeutschIandGmbHmelnenNamensamt
+AnschriftzurGeltendmachungderForderungmitzuteilen･Bei von
+mirzuvertretendenNichteinl6sungenverpflichteichmich,dadurch
+entstehendeKostenzuersQセen．
+
+Unterschrift(Zahlungsdatenumseitig)
+
+｜
+
+’
+
+｜
+
+’
+
+DatenschutzrechtlicheInformation
+lhre Zahlungsdaten (IBAN/BIC, Kartenverfallsdatum,
+Kartenfoigenummer, Datum, Uhrzeit, Zahlungsbetrag,
+Terminalkennung,Ort,Unternehmen)weldenzurKartenprnfungund
+Zahlungsabwicklunganlngenicoweitergegeben.Andasumseitig
+genannteUntemehmen,dieMedia-SaturnDeutschlandGmbHund
+Ingenicowirdfernergemeldet,wenneineLastschriftnichteingel6st
+wurde(R(lcklastschrift).WennSieimZusammenhangmitdem
+WiderrufeinerLastschrifterkIa前ermaBenRechteausdem
+Grundgeschaft(z.B.Sachmangel)geltendgemachthaben,wirddie
+Meldungumgehendgel6scht.ZudemwerdendieZahlungsdatenzur
+VerhinderungvonKartenmissbrauchgemeinsammit den
+Rpcklastschriftdaten zur BegrenzungdesRisikos von
+Zahlungsausfal lendurchdieMedia-SaturnDeutschlandGmbH
+gespeichertundgenutzt. lngenicoerteilt insoweitauchanandere
+HandierldieanihremSystemangeschIossensind,Empfehlungen,
+obeineKartenzahlungmitUnterschriftakzeptiertweldenkann.Soweit
+eineKartenzahlungmitUnterschriftnichtakzeptiertwird,bestehtbei
+positiverAutorisierungdurchdaskartenausgebendeKreditinstitut
+dieM6glichkeit;dieZahlungdurchEingabederPINdurchzufahren.
+v， ．
+. ､−−. . \ie imAushangtext undui 'ter
+www､1ngenlco･de/payment-servlces．
+
+‘ ､−． −…:−． ＄: ､-, .-. .‐. (cid:631)
+
+.
+
+．
+
+。
+

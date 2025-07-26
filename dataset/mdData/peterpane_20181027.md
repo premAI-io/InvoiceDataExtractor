@@ -1,0 +1,109 @@
+Peter Pane Leipzig
+Katharinenstraße 12
+04109 Leipzig. Deutsphland
+Tel .
+/'
+834 95 99
+le1pzigSpeterpane.de
+
+341
+
+ه
+
+ه
+
+Rechnung
+
+26-0kt-18/20:02  RgNr:AR801110221
+F1801443869
+Steuernummer:  22/290/05112
+Tisch-Nr:  137
+
+Es  bediente  Sie  Caro
+
+Ix  Käse-Speck
+rMehrkcrn
+
+tprltten
+Ix  Käse-Speck
+tBrioche
+
+fi 13,90
+
+13,90
+
+(4,50)
+fi 9,40
+
+9,40
+
+Ix  Frozen  Joghurt  m.  2
+
+fi 4,50
+
+4,50
+
+tTopplng  Kirschkompott
+łlopping  Schokolinsen
+
+Ix  Frozen  Joghurt  m,  2
+
+fi 4,50
+łlopping  Pfirsich  Kompott
+tTopplng  Keksstückchen
+Ix  Apfelsaft-Schorle  0,  fi 3,20
+Ix  Peters  Limonade
+fi 4,90
+2x  Desperados  0,331
+fi 4,50
+
+4,50
+
+3,20
+4,90
+9,00
+
+MwSt.X
+A=19,000
+
+Netto
+41,51
+
+MwSt.
+7
+
+Brutto
+49,40
+
+Bar  Total:  EUR
+
+**  49,4٥  **
+
+Gegeben;
+RUckgeld;
+
+EUR
+EUR
+
+49,40
+0,00
+
+Wir  freuen  uns,  dass  du  uns  besucht  hast!
+Teile  deine  Erlebnisse  mit  uns  auf;
+http://blt.ly/if-pp-leipzlg
+oder  scanne  den  QR  Code  und  gib  uns  dein
+Feedback,
+
+□
+
+□
+
+ิ'
+¡ซ
+□
+
+Panlceus  Gastro  Systemzentrale  GmbH
+Breite  str.  1-5
+
+23552  Lübeck
+

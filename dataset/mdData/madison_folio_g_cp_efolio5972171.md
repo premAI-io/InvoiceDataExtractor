@@ -1,0 +1,165 @@
+MADISON Hotel GmbH  Schaarsteinweg 4  20459 Hamburg
+
+APImeister Consulting GmbH
+Friedrichstr. 123
+10117 Berlin
+
+RECHNUNGSKOPIE
+
+Rechnungs.-Nr. 507536 /
+Datum:
+02.08.19
+
+Gastname
+
+:
+
+Herr Jens Walter
+
+Datum
+
+Beschreibung
+
+28.07.19
+
+Übernachtung exklusive Frühstück*
+
+29.07.19
+
+Übernachtung exklusive Frühstück*
+
+30.07.19
+
+Übernachtung exklusive Frühstück*
+
+31.07.19
+
+Übernachtung exklusive Frühstück*
+
+01.08.19
+
+Übernachtung exklusive Frühstück*
+
+02.08.19
+
+Mastercard IFC
+
+Zimmer
+Anreise
+Abreise
+Seite
+Benutzer ID
+
+:
+631
+:
+28.07.19
+:
+02.08.19
+1 of 1
+:
+: KUE
+
+Belastung
+
+Entlastung
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+550.00
+
+0.00 EUR
+
+550.00
+
+550.00
+
+Umsatzsteuer Detail
+Total inkl. MwSt.
+MwSt. 7% *
+
+  Netto EUR
+ 514.02
+514.02
+
+ MwSt. EUR
+ 35.98
+35.98
+
+Brutto EUR
+ 550.00
+ 550.00
+
+Total
+
+Saldo
+
+Finanzamt: Hamburg Mitte
+Steuernummer: 48/741/01228
+
+Kreditkartendetails
+Vertragsnummer
+Kreditkartennummer
+Verfallsdatum
+
+Terminal ID
+
+:
+:
+:
+
+:
+
+154694832
+XXXXXXXXXXXX5052
+XX/XX
+
+69264892
+
+:
+Beleg Nr.
+Transaktionsbetrag  :
+:
+Genehmigter Betrag
+
+28866
+ 550.00
+ 550.00
+
+Genehmigungscode :
+
+949062
+
+Ich authorisiere den aufgeführten Betrag.
+
+_______________________________
+Unterschrift des Karteninhabers
+
+MADISON Hotel GmbH
+Schaarsteinweg 4
+20459 Hamburg
+Germany
+
+T +49.40.37 666-0
+F +49.40.37 666-137
+info@madisonhotel.de
+madisonhotel.de
+
+Geschäftsführer:
+Marlies Head, Thomas Kleinertz
+AG Hamburg HRB 47881
+VAT: DE118 696 407
+
+HypoVereinsbank
+BLZ 200 300 00, Konto-Nr. 360 27 11
+IBAN: DE48 2003 0000 0003 6027 11
+BIC: HYVEDEMM300
+

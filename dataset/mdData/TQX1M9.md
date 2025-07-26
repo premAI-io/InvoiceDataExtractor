@@ -1,0 +1,166 @@
+Online-Ticket
+
+IC/EC Fahrkarte
+Fahrtantritt am 25.03.2018
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Bonn-Beuel+City
+Über:
+Umtausch/Erstattung kostenlos bis 1 Tag vor Reiseantritt (Hinfahrt).
+
+VIA: K*(D*OB*GE/HA)*MS*OS*HB*HAR
+
+ Hamburg+City, mit IC/EC
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+IC/EC Fahrkarte
+Reservierung
+Summe
+
+80,50€
+0,00€
+80,50€
+
+Preis
+
+1
+1
+
+MwSt (D) 19%
+
+80,50€
+
+12,85€
+
+80,50€
+
+12,85€
+
+MwSt D: 7%
+
+Hinfahrt:
+Gültig ab:
+
+25.03.2018
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+80,50€
+25.03.2018
+
+VU-Nr
+Gen-Nr
+
+4556695619
+N1BVHS
+
+Transaktions-Nr
+
+847776
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 25.03.2018 16:29 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 25.03.2018
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+TQX1M9
+
+Halt
+Bonn-Oberkassel Nord
+Beuel Bahnhof, Bonn
+Bonn-Beuel
+Hamburg Hbf
+
+Gleis
+
+Datum Zeit
+25.03.
+25.03.
+25.03.
+25.03.
+
+ab 18:36
+an 18:44
+ab 18:50 2
+an 23:15 13
+
+Produkte
+STR 62
+
+EC 6
+
+Reservierung
+
+1 Sitzplatz, Wg. 263, Pl. 31, 1 Fenster,
+Großraum,
+Nichtraucher, Res.Nr. 4596 4007 9141 25
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!.
+
+TQX1M9
+
+Seite 1 / 1
+

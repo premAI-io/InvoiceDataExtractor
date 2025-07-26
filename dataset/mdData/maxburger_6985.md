@@ -1,0 +1,73 @@
+Max  Burgers AB
+Kungsgatan 44
+
+tcckhclm
+آ9آ
+ه8-
+145
+t „!ployer  Identification  number  (EIN) :  556
+188-7562
+Store  manager:  Essam  Jerjis  Mikha
+
+6985
+
+EAT
+
+IN
+
+MAX  EXPRESS
+
+Check  number  6985
+
+39/04/2019  19:48
+
+1  Umami  Bacon-mẵl
+
+Umami  Bacon
+1  Spicy  fries
+
+Läsk,  mellan
+
+Auth#:  356312
+
+Net  Amount
+
+Tax  12*
+Total
+
+95.00
+
+25.00
+
+120.00
+
+107. 14
+
+12.86
+
+120.00
+
+TERM.ID:  10001293
+STORE
+ID:  33
+..**.....*♦*2825  Debit  MasterCard
+Contactless
+
+AID:  Α0000000041010
+
+TVR:  0000000000  TSI:  Ε800
+
+REE:  000029  356312
+
+RESP:
+
+Your  meal
+
+Is  carbon  neutral .
+
+We  c.arbon.  offset  100*  by
+planting  trees  in  Africa.
+Thank  you  for  choosing  Max.
+
+Guest  receipt
+

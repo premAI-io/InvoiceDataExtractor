@@ -1,0 +1,55 @@
+SUPER DUPER
+DGITOWN
+721  Market st,
+San Franelsco, Cft  94103
+(415) 538-3437
+
+Servers  Brian
+65/Tony/l
+Guests: 1
+
+Order type;  DIME IM
+
+Combo Super Fries Soda
+Super
+
+Cheese
+
+Subtotal
+lax
+
+lotal
+
+MC
+
+04/13/2019
+8:28 PM
+
+#20408
+
+13.00
+
+0.75
+
+13.75
+
+1 .17
+
+14.92
+
+14.92
+
+Auth:406909
+
+Balance Due
+
+0.00
+
+FOELOW US OM
+FACEBOOK & INSFAGRAM
+Come again!
+superduperburgers.com
+CODE  778899
+
+--- Check Closed —
+

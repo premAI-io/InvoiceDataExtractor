@@ -1,0 +1,58 @@
+SHAKE SHACK
+3790 Las Vegas Bl٧d  South
+
+Host:
+TONY
+
+DBL  ShackBurger
+cheese  fries
+Vanilla  Shake
+
+Subtotal
+Tax
+
+11/23/2021
+10PM
+6؛
+50023
+
+99
+4.25
+5.69
+
+18.93
+1 .59
+
+To Stay Total
+
+2๐.52
+
+C5562
+
+FP MC #C
+Tip
+Total
+
+Grand Total
+
+20.52
+2
+23.36
+
+23.36
+
+How'd We Oo?
+shakeshack.com/feedback
+
+--- Check Closed
+
+C
+C
+C
+C
+C
+C
+C
+C
+C
+C

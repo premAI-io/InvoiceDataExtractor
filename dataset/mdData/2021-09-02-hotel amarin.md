@@ -1,0 +1,219 @@
+I
+
+ϋ
+
+ROVINJ,  03.09.2021.  10:29:06
+
+str.  1/1
+
+RECHNUNG/RACUN  8556/2021
+
+Hote!  Amarìn
+Va!  de  Lesso  5
+
+Le!/Fax:  tt38S(٥)52 805 500/ 811  541
+MB:  1919016  Ο!Β:25190869349
+
+WALTERJENS
+
+اHerr
+
+'stel!te  Rechnung  auf Grund  der Reservationsbestatigung / RaCun  na osno٧u  potvrdene rezervacije:  14046/2021,  31.08.2021.
+
+mmer
+эЬа
+
+leistung
+٧s!uga
+
+Nummer  Datum
+Datum
+Broj
+
+110  tägücher Mietpreis  &  Voüpension-premium
+
+room
+
+110  täghcher Mietpreis  &  Voüpension-premium
+
+room
+
+110  Welcome  bar hote!  Amarin  -  01.09.2021.  -
+
+1000029145
+
+110  Istrian  beach  house  II  -01.09.2021.  -
+
+1000005188
+
+1
+
+1
+
+1
+
+2
+
+01.09.2021.03.09.2021.
+
+01.09.2021.03.09.2021.
+
+01.09.2021.
+
+01.09.2021.
+
+٠/-%
++/-%
+
+Lage
+Dana
+
+2
+
+2
+
+Preis
+
+c!jena
+
+0,00
+
+4.624,63
+
+ؤ
+
+Betrag
+Izno:
+
+HRK
+0,00
+
+9.249,26
+
+90,00
+
+51,00
+
+Gesamtbetrag/Ukupn.  HRK
+
+9.390,26
+
+Zu  bezahlen/Za  placanje
+
+1.236,00 EUR  (Wechelskurs  7,483221)
+
+Gesamtbetrag/Ukup^o
+
+9.249,26  HRK
+141,00  HRK
+9.39٥,26ΗΚ^
+
+9.390,26  HRK
+
+BezahltZPIaCen.
+Eurocard
+
+MwSt.  Rekapitulatlon/Rekapitulacija  poreza
+N
+
+etto  Betrag  MwSt.
+
+boraviSna  pristoiba
+PDV13»/.
+PDV25./.
+PDV25%
+
+Gsnovica poreza
+40,00
+8.149,79
+20,00
+90,62
+8.300,41
+
+PDV./o
+0
+13
+25
+25
+
+MwSt.  V.Betrag./ο  Verbrauchst.Betrag
+Porez
+FP°/o  Porez  na  potroSniu
+0,00
+٥,00
+0,00
+1.059,47
+0,00
+5,00
+2,72
+22,66
+2,72
+1.087,13
+
+0
+0
+0
+3
+
+Gesamtbetrag
+Ukupno
+40,00
+9.209,26
+25,00
+116,00
+9.390,26
+
+Die  ertliche  Kurtaxe  und  Verbrauchs-Steuer werden  laut Artikel  33.  Abschnitt 3  des Gesetzes  der Mehrwertsteuer nicht weiter versteuert.
+BoraviSna  pristejba  I  porez  na  potreSnju  ne  pedlijeZu  oporezivanju temeljem  Glanka  33.  stavak 3.  Zakona   ٠ PDV-U.
+*special taxation  procedure -  travel  agencies.  *Turistická  ageneija  Maistra,  Nazorova  2,  HR-52210  Rovinj,  ID  HR-AB-52-04021 0687
+
+0؛
+
+Ξ
+
+Vrijeme  izdavanja;  03.09.2021.  10:29:06
+1|  Oznaka  operatela:  NIKOIINA LAGINJA
+PS
+ كأ
+
+Broj  raCuna:  8556/3801/8038
+ZaStitni  kod:  7259d2b20b79b339e2c946c4a31a8b6b
+JIR:  757db03d-f25a-46b4-8345-1bd2c10be05d
+Oznaka  plaCanja:  K  Kartice
+
+:عأ
+
+Noch  kein  Mitglied  des  Maistra  loyalty Programms?
+
+Machen  Sie  mit!  Sammeln  Sie  unsere "Wellen"  und  tauchen  Sie  in  unser Meer von  exklusiven Vorteilen  ein!
+
+Fragen  Sie  nach  dem Anmeldeformular an  der Rezeption  oder melden  Sie  sich  online  auf der folgenden Website an:
+AMw.maistra.com.
+
+Rezeptionist:  NIKOtINA LAGINJA
+
+/VXAISTRA
+
+HOSPITALITY  CROUP
+
+Thank you for your visit
+
+MAiSTRAd.d/Dioniikodf4؛tvozahotei؛jerstvoiturizam/Obaia\^aditiiiraNazora6,HR-522IO Rovinj/Tel,:+38S{0)52800 250/Fax:
+registarTfgovaikog suda и  RijecI  -  stallia służba  и Pazinu, pod bệrn Tt-05/979-3, WBS:
+SWIFT:  ZABAHR2X.  )ΒΑΝ:  Ηβ6423600α011018257Ί0;  Privrediia  faanb  2agieb  d.d.,  Zagreb,  swin:  PBZCHRZX,  IBAN;  HR582340009m017
+5S25:^EKTE^ST£ÆRWARKI5CHE
+BANKtí.(l.. RJeka,  SWIFT:  ESBCHR22.  ΙΒ-ΑΝ;  Hfi3324O2OO61IOO662702;  ^ffeiseitbank Austriad.d.. Zagreb,  sw¡^; RZBHHR2X,  IBAN;  HR092484008II05003235. / TemeIjtli
+kapital iznosl 12^.985.564.65 кипа. 'p٠di)c!)cn na  10.944.339 dionica. upIaCen u cijelosti.  Uprava: TomiSlav PopoviC. Predsjednik Nadzornog odbora; mr.sc. Ante VlahovlC.
+
+;  QIB; 2^90869349. / Ra؛uni se vode kod: 2agreba¿ka
+
++ 385C0)528n54a./UpÍMnrSudsk؛
+
+40210
+
+87ج
+
+ه
+
+โ
+โ

@@ -1,0 +1,193 @@
+MAD.SON Hote! GmbH  Schaarsteinweg 4 2459 ه
+
+Hamburg
+
+AP!me!ster Consu!t!ng  GmbH
+F٢!edr!chst٢. 123
+10117  Bedin
+
+RECHNUNG
+
+Rechnungs.-Nr. 487812  /
+Datum:  25.01.19
+
+Gastname
+
+:Herr Jens Walter
+
+Datum
+
+Beschreibung
+
+20.01.19
+
+21.01.19
+
+22.01.19
+
+23.01.19
+
+24.01.19
+
+Übernachtung  exklusive  Frühstück*
+
+Übernachtung  exklusive  Frühstück*
+
+Übernachtung  exklusive  Frühstück*
+
+Übernachtung exklusive  Frühstück*
+
+Übernachtung exklusive  Frühstück*
+
+25.01.19
+
+Mastercard  IFC
+
+THE
+MADISON
+HAMBURG
+
+z!mmer
+
+An٢e!se
+
+Abre!se
+
+Se!te
+
+Benutzer  ID
+
+316
+
+20.01.19
+
+25.01.19
+
+lofi
+
+POE
+
+Belastung
+
+Entlastung
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+550.00
+
+0.00  EUR
+
+550.00
+
+550.00
+
+Umsatzsteuer  Detail
+
+Netto  EUR
+
+MwSt.  EUR
+
+Brutto  EUR
+
+Total  inkl.  MwSt.
+MwSt.  7%  *
+
+514.02
+
+514.02
+
+35.98
+35.98
+
+55Q.O0
+550.00
+
+Total
+
+Saldo
+
+Finanzamt:  Hamburg  Mitte
+Steuernummer:  48/741/01228
+
+Kreditkartendetails
+
+Vertragsnummer
+Kreditkartennummer
+
+: 154694832
+yyyyyyy
+
+yyyyysns?
+
+Verfallsdatum
+
+XXIXK
+
+terminal  ID
+
+69264892
+
+Beleg  Nr.
+
+:  22161
+
+ttansaktionsbetrag  :  556.06
+GenetimigterBetrag:  550.00
+Genehmigungscode  :  149460
+
+Ich  authorisiere den  aufgeführten  Betrag.
+
+Unterschrift des  Karteninhabers
+
+MADISON Hotel GmbH
+Schaarsteinweg 4
+20459 Hamburg
+Germany
+
+T »49.40.37 666-0
+
+Geschäftsführer:
+
+F »49.40.37 666-137
+
+info@madisonhotel.de
+
+madisontiotel.de
+
+Marlies Head, Thomas Kleinertz
+AG Hamburg HRB 47881
+VATDE118 696 407
+
+HypoVereinsbank
+BLZ 200 300 00, Konto-Nr. 360 27 11
+IBAN: DE48 2003 0000 0003 6027 11
+
+BIC: HYVEDEMM300
+
+ةه
+؛So
+О
+؛ة
+
+๐
+THE
+MADISON.
+HAMBURG
+
+ه
+
+ị
+
+?
+■ł
+
+.إ
+

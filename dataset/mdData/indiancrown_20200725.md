@@ -1,0 +1,72 @@
+Indian Restaurant
+*** Indian Crown  ţu
+Relchsst!..  15  *  04109  Leipala
+04155  Leipzig
+
+Tel .
+
+25699737 0341 ؛
+
+Steuernummer  0E322/195/098Û1
+
+Restaurant
+Rechnung  Nr,  RE  00171  20  Oatum  24.0'7.2020
+Kellfier  1
+
+7e1t  2.0:11
+
+lisch  67
+
+1  044  Lahsunì  Naan
+1  202  Palak  Paneer
+1  217  Matter  Paneer
+1  OIO  Нага  Bhara  Salat
+1  600  Mango  l.assl
+1  601  Lassi  süß
+1 502  Stilles  Wasser  0
+
+3.90
+13 90
+14.90
+5.90
+3.50
+2.90
+5 90
+
+3 90
+13.90
+14.90
+5.90
+3.50
+2.90
+5.90
+
+50.90
+
+Barzahlung
+
+Satz
+5
+16  %
+id:  ΖΖ32
+
+Brutto
+38.60
+12.30
+
+Netto
+36.76
+10.60
+
+ust
+
+1
+1 .70
+
+Sunne  Euro
+
+50.90
+
+wir  danken  für  Ifiren  Besuch
+Ihanks
+

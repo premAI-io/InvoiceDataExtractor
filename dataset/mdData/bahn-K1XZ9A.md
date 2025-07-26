@@ -1,0 +1,171 @@
+Online-Ticket
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+ Bonn(TG 2600), mit ICE
+
+ICE Fahrkarte
+Fahrtantritt am 14.07.2019
+
+Flexpreis (Einfache Fahrt)
+NE 565
+Klasse:
+Erw:
+Hinfahrt: Frankfurt(M)Flugh.
+Über:
+Storno kostenfrei bis 1 Tag vor 1. Geltungstag.
+
+1
+1, mit 1 BC50
+
+VIA: LM*MT*Siegburg/Bonn
+
+Zahlungspositionen und Preis
+Positionen
+ICE Fahrkarte
+Reservierung
+Summe
+
+64,25€
+0,00€
+64,25€
+
+Preis
+
+1
+1
+
+MwSt (D) 19%
+
+60,50€
+
+60,50€
+
+9,66€
+
+9,66€
+
+MwSt (D) 7%
+3,75€
+
+0,25€
+
+Hinfahrt:
+Gültig ab:
+
+14.07.2019
+
+3,75€
+
+0,25€
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+64,25€
+14.07.2019
+
+VU-Nr
+Gen-Nr
+
+4556695619
+N5KMUI
+
+Transaktions-Nr
+
+424374
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+K1XZ9A
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 14.07.2019 07:17 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 14.07.2019
+
+Halt
+Frankfurt(M) Flughafen Fernbf
+Siegburg/Bonn
+Siegburg Bahnhof
+Bonn Hbf (tief)
+
+Datum Zeit
+14.07.
+14.07.
+14.07.
+14.07.
+
+Gleis
+ab 08:09 Fern 6
+an 08:46 3
+ab 08:56
+an 09:20
+
+Produkte
+ICE 604
+
+STR 66
+
+Reservierung
+1 Sitzplatz, Wg. 29, Pl. 31, 1 Fenster, Großraum,
+Nichtraucher, Res.Nr. 8044 0000 2553 57
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+K1XZ9A
+
+Seite 1 / 1
+

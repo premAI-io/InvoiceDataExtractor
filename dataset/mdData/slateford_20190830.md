@@ -1,0 +1,108 @@
+Thank  you for shopping at;
+Slatpford Road SF Connect
+BP Express Shopping Limited
+Tel  ;  0131 443 31Ď1
+
+3CV1I8/20I9  00:26
+
+Site  Id;  11000313
+
+VAT  Reg  Ilo.  243  5105  03
+
+(Jty  Name
+
+1  DIESEL
+Pump;  6  39.63
+Iol.al
+Masteicard
+
+Litre
+
+GBP
+
+Price
+1 .299
+1 ,299
+
+total
+51 .48
+؛e/Lltre
+
+11
+
+51.4«
+51 ,4«
+
+Inci
+1
+
+51.4«
+
+VAT  rate
+D:  20.00*
+Total
+
+Excl
+42.90
+42.9Ü
+
+VAT
+
+.58
+8.5«
+
+Purchase
+Debit  MasterCard
+
+30.08.2019
+09:25.1?
+term.  10:71043361
+lA  no. :413496
+Irx.  ηο. :7229  Act.  co(Je:00000000
+02/0036/0501
+LTeceipt:
+Autti .
+NlKWdD
+.40000000041010
+App
+xxxxxxxx.x><xx2825
+'
+.ar
+10/21
+TLIS:
+ICC
+51 .48GBP
+
+:
+เ0:
+:؛
+
+.AmoLiíit;
+
+Please  debit  ту  account  with  tite
+
+Appro٧ed
+
+total  amount
+lease  recaln  receipt
+
+؛.
+
+tance  to  win  ilOO!  SL.are  your
+
+؛
+laedback  at  www.Ta1k2BP.C0.uk
+Anything  we  can  help  with?
+
+Cal l
+
+:  0800  402402
+
+Email ;  carelineøLtp.com
+BP  Careline,  PO  Box  352,
+Suitbury-on-Thames.  1W16  9ΑΙ
+
+Term1!ial  ;2  Receipt:  1877934
+
+ORIGINAL
+

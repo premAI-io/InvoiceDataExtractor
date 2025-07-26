@@ -1,0 +1,127 @@
+IOLE
+KXJDS.
+
+M
+
+RKE
+
+Franklin FRK
+1765 Califo٢nìa  st
+
+Sail  Fraโ
+
+اcisc0,  CA 94109
+415-674-0500
+
+BERRY AND MANGO
+
+0,78  lb
+
+i
+SCHG SCONE RSPBRY
+HOF BAR
+
+.99 /lb
+
+0.94  lb
+$
+lare Weight 0.11  lb
+
+@
+
+9.99  /lb
+
+Subtotal ;
+Net Sales:
+Fax
+
+Fotal:
+Sold  Items:
+
+Paid:
+MasterCard
+
+.50«
+
+$7.01  F
+55.99 F
+؛
+
+؛
+
+59.39  Ĩ
+
+$3-2.39
+$22.39
+50.80
+$23.19
+3
+
+؛
+
+$23.19
+15:53:20
+1
+
+FID;
+
+0،r/08/20l9
+M10;001899898
+201246
+
+CARD  #:
+Chip  Card:
+Chip  Card  AID:
+AFC
+FC:
+FSI:
+INVOICE:
+Approval  Code;
+Eft try  Method:
+Mode
+
+Ε800
+
+SALE  AMOUNF
+
+CREDII  CARD
+
+PURCHASE
+
+ΧΧΧΧΧΧΧΧΧΧΧΧ2825
+Debit  MasterCard
+A00Ũ0000041010
+0206
+DE5249DBAD3DCAF1
+ARC:  NZUDIY
+500100364
+NZUDIY
+Cntctless
+Issuer
+
+$23.19
+
+APPROVED  BY
+
+ISSUER
+
+Save  $10  0(1  your  uext  $2.0  purchase  whep
+you  sigp-up  For  a  Free  Атагор  Prime  trial
+at  ama2OP.com/whole۴oods10  Fiy  April  30th
+
+Earn  5Χ  Back  at  Whole  Foods  Market
+with  the  Amazop  Prime  Rewards  Visa.
+Learp  more  at  атагор.com/amazopvisa
+
+HOW  WAS  YOUR  SHOPPING  EXPERIENCE?
+Go  to:  http;//www.wFm.oom/Feedback
+ENFER  FOR  A  CHANCE  FO  WIN  A  $250  GIFF  CARD
+
+(2187757)  10044
+201  8077  04/08/2019  03:53  PM
+
+351H22YV1.H
+
+Fhapks  For  shoppipg  at  WFiole  Foods  Market
+Who1eFoodsMarket.com
+

@@ -1,0 +1,156 @@
+Online-Ticket
+
+ICE Fahrkarte
+Fahrtantritt am 25.11.2018
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Siegburg/Bonn
+Über:
+Storno kostenfrei bis 1 Tag vor 1. Geltungstag.
+
+VIA: MT*LM
+
+ Frankfurt(M)Flugh., mit ICE
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+ICE Fahrkarte
+Reservierung
+Summe
+
+54,00€
+0,00€
+54,00€
+
+Preis
+
+1
+1
+
+MwSt (D) 19%
+
+MwSt D: 7%
+
+54,00€
+
+54,00€
+
+8,62€
+
+8,62€
+
+Hinfahrt:
+Gültig ab:
+
+25.11.2018
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+54,00€
+25.11.2018
+
+VU-Nr
+Gen-Nr
+
+4556695619
+NVGU86
+
+Transaktions-Nr
+
+130019
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 25.11.2018 06:56 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 25.11.2018
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+6GS7GQ
+
+Halt
+Siegburg/Bonn
+Frankfurt(M) Flughafen Fernbf
+
+Datum Zeit
+25.11.
+25.11.
+
+ab 08:09 6
+an 08:49 Fern 5
+
+Gleis
+
+Produkte
+ICE 513
+
+Reservierung
+1 Sitzplatz, Wg. 39, Pl. 36, 1 Fenster, Großraum,
+Nichtraucher, Res.Nr. 8020 9000 5149 26
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+6GS7GQ
+
+Seite 1 / 1
+

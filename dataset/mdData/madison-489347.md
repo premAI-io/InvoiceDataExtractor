@@ -1,0 +1,264 @@
+MAD.SON Hote! GmbH  Schaarste!nweg 4 20459 Hamburg
+
+AP!me!ster Consu!t!ng GmbH
+Fbedrichstr. 123
+1٥117Вег!!п
+
+RECHNUNG
+
+Rechnungs.-Nr. 489347 ا
+Datum:  08.02.19
+
+Gastname
+
+:  Herr Jens Wa!ter
+
+Datum
+
+Beschreibung
+
+03.02.19
+
+04.02.19
+
+05.02.19
+
+06.02.19
+
+07.02.19
+
+Übernachtung exklusive  Frühstück*
+
+Übernachtung exklusive  Frühstück*
+
+Übernachtung exklusive  Frühstück*
+
+Ubernactitung exklusive  Frühstück*
+
+Übernachtung  exklusive  FrUtistUck*
+
+08.02.19
+
+Mastercard  IFC
+
+THE
+MADISON
+HAMBURG
+
+z!mme٢
+
+An٢e!se
+
+Abre!se
+
+Se!te
+
+Benutzer  !D
+
+334
+
+03.02.19
+
+08.02.19
+
+lofi
+
+POE
+
+Be!astung
+
+Ent!astung
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+110.00
+
+550.00
+
+0.00  EUR
+
+550.00
+
+550.00
+
+Umsatzsteuer Detail
+
+Netto  EUR
+
+MwSt.  EUR
+
+Brutto  EUR
+
+Total  inkl.  MwSt.
+MwSt.  7%  *
+
+514.02
+514.02
+
+35.98
+
+35.98
+
+55٥.0٥
+550.00
+
+Total
+
+Saldo
+
+Finanzamt:  Hamburg  Mitte
+Steuernummer:  48741/01228
+
+لم
+
+Krsditkartsndetalts
+
+Vertragsnummer
+
+: 154694832
+
+Kreditkartennummer:  ΧΧΧΧΧΧΧΧΧΧΧΧ5052
+
+Verfallsdatum
+
+lerminal  ID
+
+χχ,χχ
+
+69264892
+
+22706
+
+Beleg  Nr.
+Iransaktionsbetrag  :  550.00
+Genehmigter Betrag:  550.00
+Genehmigungscode  :  678109
+
+Ich  authorlslere den  aufgeführten  Betrag.
+
+Unterschrift des Karteninhabers
+
+MADISON Hotel GmbH
+Schaarsteinweg 4
+20459 Hamburg
+Germany
+
+T +49.40.37 666-0
+
+Geschäftsführer:
+
+F +49.40.37 666-137
+
+info@madisonhotel.de
+
+madisonhotel.de
+
+Marlies Head, Thomas Kleinertz
+AG Hamburg HRB 47881
+VAT:DE118 696 407
+
+HypoVereinsbank
+RI 7 200 300 00, Konto-Nr. 360 27 11
+IBAN: DE48 2003 0000 0003 6027 11
+
+BIC: HYVEDEMM300
+
+t٥
+
+o
+!ج
+
+๐
+THE
+MADISON,
+HAMBURG
+
+14
+
+؟أ
+
+f.
+
+ج..
+
+ًاي
+
+مإب
+
+اح
+
+ؤ
+
+'I
+
+؛ا
+
+ل؛س<،اي-٠ذا.
+
+:ى
+
+ăầỂỂ-b,■
+
+ا;
+
+لي٢بلي
+
+ئئ-ها|
+
+I؛
+ة،؛,;
+t
+Ц
+г-Ằ;
+اد
+
+1
+
+I
+
+S
+
+با.
+
+r
+
+؛زن"
+
+1؛
+
+1'
+
+;تاو
+mí ة
+
+،فأ
+
+M
+
+اI؛،ب
+
+i
+
+Ί\ üϊ
+
+I
+κίίί
+
+1
+
+เ:
+
+ل;
+
+ي
+
+:٦
+
+ส
+เ

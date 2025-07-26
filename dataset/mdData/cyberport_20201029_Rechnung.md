@@ -1,0 +1,120 @@
+-
+
+Cvberport Store Leipzig, Neumarkt 29-33, 04109 Leipzig
+
+Rechnung
+
+Herrn
+لens  Wa!ter
+lausner  Weg  45
+04207  Leipzig
+
+II
+
+Ihre  Referenznr.
+
+Kunde
+
+Rechnungsnr.Z-datum
+Lleferschelnnr./datum
+
+Bestellnr./datum
+
+Verkaufsbelegart
+Zahlart
+
+Seite
+
+904033298
+
+/  29.10.2020
+
+236968
+201510234
+601662724
+
+/  29.10.2020
+/  2.9.10.2020
+
+904033298
+
+/  29.10.2020
+
+Auftrag  Store
+Kred!tkarte  Mastercard  Store
+
+1
+
+/
+
+1
+
+Lieferscheindatum  entspricht  dem  Liefer-  bzw.  Leistungsdatum!
+
+Pos.
+
+Produkt-  bzw.  Leistungsbeschreibung
+
+Menge  USt.  (%٠
+
+Einzelpreis
+
+Betrag  Brutto
+
+16,0 %
+
+38,90
+
+38,90  EUR
+
+3405-00Q
+
+Seagate  Barracuda  HDD  ST1000DM010  -
+1TB
+
+( ZN1GEDMR )
+
+Gesamtbetrag
+
+38,90  EUR
+
+33,53  EUR
+٠  5,37  EUR
+
+Im Gesamtbetrag enthalten sind:
+Nettobetrag
+Umsatzsteuer
+
+EUR
+16,00%  auf
+
+33,53  EUR
+
+Die  Ware  bleibt  bis  zur  vollständigen  Bezahlung  unser  Eigentum.
+
+Die  Zahlung  erfolgte  per  Kreditkarte.
+
+Überzahlungen  werden  automatisch  erstattet.
+
+Cyberport  Store  Leipzig  -  Neumarkt  29-33,  04109  Leipzig
+Öffnungszeiten:  Mo-Sa  10-20  Uhr
+
+Geschäftsführer:  Simon  Frank,  Helmar  Hipp,  László  Kovács,  Robert Rónai
+
+Amtsgericht Dresden  HRB  16246 I  Ust.-ldNr.:  DE195033395 I  Steuer-Nr.:  202/107/09526
+
+Cyberport GmbH
+Am  Brauhaus  5
+Oiœ9 Dresden
+
+E-Mail;  info@cyberport.de
+lelefon: +49 351  3395-60
+Fax:+49 351  3395-699
+
+Commerzbank  Freiburg
+IBAN:  DE 73 6808 0030 0723
+
+ 3036 00,  BIC:  DRES  DE  FF 680
+
+า
+า

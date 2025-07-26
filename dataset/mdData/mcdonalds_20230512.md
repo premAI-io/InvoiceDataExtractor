@@ -1,0 +1,103 @@
+235
+
+Ausgabe 1
+Steřan !trame Гага!ا leitgaslt onerale e.к.
+
+؛1ое۴е ага Itrtiehl
+041Ü9 ieip¿ig
+
+1
+
+.Thr Kontakt ¿u nrاد
+
+WWW. mrrJonaا ds t i arme. de
+
+QUITTUNG
+
+«ORD 35 -KS. 27
+anl; ARTtKEl
+
+12ا-05-2ه23t5t^29
+
+1 McCrtspy Ciuaoamole MS
+
+1 McCrtspy Spio٧ ünaoamole
+1 Pommes Frites mittel
+
+1 Ketohnp
+
+1 Sola Zero ก dl
+5ةاا (hill Cheese Snaokets
+
+1
+
+INNEN IGIAE
+Kiosk Credit Sales
+
+St,N|-./UStI[-)Nr. ZSl/ZSlZlGeiS
+BRUTTO
+0.74
+12,74
+
+INCl.. MwSt
+INfl·. MwSt
+
+SATZ
+19,00^
+7,00%
+
+GESAMT
+3,69
+
+3,79
+
+13,48
+13,48
+
+MWST
+0,12
+0,03
+
+Bon-Nr.
+#435/0
+Transaktionsrinnimer-
+#167510
+Serierinuramer ties Siclrer'heitsmrjduls
+#13tA751T37AE9486ö71|-O125ECßDö0AE0EBlAB
+E3£CAClbD9LTCÚCBCD2E[)1463A3
+Serlennr. des elektr. A،ifzeiolii٠nnyss.٧&tem
+#0E01633CS027
+Slynatirrzatiler
+#639729
+PrUfwert
+#7C7F499EB2ÖA60yCB62ÖÖEEOCEElE7AlA05989
+B6644ŨAA9ŨD156AA426ŨC560CF4C1FA923194D3
+9035F570B1Ö5EB0D2EÜÖAS4DÖ4743OO4ÛA0F18C
+34154C0Ü2B12902EBB5E63CCEAB795F2A8B92C7
+0365B491736B2A823EF18Ũ556EA169A339ŨA8
+StartBestelİLing:
+Startdatum:
+Enddatum:
+
+11/05/2023 2153^37
+11/05/2023 21:53:37
+11/05/2023 21:54:36
+
+Hat Timer: TTìr Besuch yefallen?
+Feedhack gehen urrcl Ix kleinen Softdrink
+odei- Ix kleine,-! Kaffee gr'atis erfialtent
+www.fflcdonalds.de/delnfeedtratk
+cmgr-7n43-k912
+
+Mit dem neuen M؛.flon<.il(l's Liefersertdce
+bringen wir Time l.-,,4.i1jnysbut'ger
+jetzt a,.!tfi zu Ihnen.
+Informatronen ei 1'؛...اا len Sie unter
+www.mctlelivery.de
+
+Fr-agen ntrd Arrf-egungen rrnter- 'feedbackSrac
+
+Vielert ITank
+
+für٠ïhr'eir Besuch!
+

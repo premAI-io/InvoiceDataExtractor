@@ -1,0 +1,46 @@
+GRAND CANYON  WEST
+92ธ-'769-2419
+
+cuseoMER COPY
+
+12
+
+PM ا5ة
+
+ ًا
+
+2/0
+
+ًا/
+
+9092 073:129907 18
+
+giY  DESCRIPTION
+
+1
+
+ Legacy  Skywalk
+
+AMOONT
+66,90
+
+TAX
+TOTAl.
+MC
+CHANGE
+
+4.67
+71 .57
+
+71 .57
+
+0.00
+
+ΧΧΧΧΧΧΧΧΧΧΧΧ2825
+
+APPROVAL  N2UBQ٧
+
+NOT  VALID  POR  ADMISSION
+
+WMU.yrandcanyomjest.cDni
+

@@ -1,0 +1,53 @@
+Starbucks Coffee
+AmRest Coffee Deutschland
+Sp. z 0.0. ร  Co. KG
+Muensterplatz 21
+53111 Bonn
+
+Ί
+ft il
+111,
+
+102983
+
+Chk  1614
+
+25flall9  12:26
+
+ ًاه Go
+اً MangoPinapFrappV
+1  Caf?eLatteV
+
++  cLowFatMllkCAflV
+
+9850;575ธ06.
+Credit Card
+
+0.30Mi()St. Fo 7%
+؛tetto
+0.86ilwSt.  19ة
+Netto
+
+Subtotal
+Zahlung
+
+5.39
+4,59
+
+9.98
+
+4.59
+4,29
+5.39
+4.53
+
+9,98
+9.98
+
+Steuernummer  2/1849/2293
+Umtausch  nur  mit  Kassenbon؛
+
+Vielen  Dank  fuer  Ihren  Besuch!
+
+WC  Code:  3291
+

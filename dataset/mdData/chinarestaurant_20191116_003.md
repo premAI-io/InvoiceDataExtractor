@@ -1,0 +1,51 @@
+ΐ
+
+i
+ع
+
+Reismyhler  Weg  7
+Gauting
+ أل2أ
+0
+
+31
+Tel .+Fax: 089-  89  99  81  23
+
+«Nr  9764
+Datum:  14.11 .19/14:23:58
+
+Name:
+
+Tisch:
+Nr. :
+
+2٥
+133224
+
+1x140  A  Radler  0,51
+1x141  A  Alkoholfreies  WelHbler  0,5
+1x12  A  Gebackene  Wantan
+1x19  A  Dirn  Sum  Platte
+lx54  A  Schweinefl .nach  Gung  Bao  Ar
+IxSPlS  A  Bräutigamsmahl  Schweineba
+
+3.70
+3.90
+3.50
+4.90
+12.90
+13.90
+
+Netto  Betrag
+EURO
+MwSt  A  =  1970%  EURO
+
+Gesamt  EURO
+
+35.97
+6.83
+42.80
+
+Vielen  Dank  für  Ihren  Besuch!
+SteuerNr. :161/209/30293
+

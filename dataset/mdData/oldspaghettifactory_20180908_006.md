@@ -1,0 +1,44 @@
+22
+
+íactotv
+
+The Old Spaghetti Factory - Gastown
+53 Water St.
+Vancouver, BC, V6B 1A1
+604-684-1288
+
+Server: sean I
+Printed By: sean
+
+ID: 100922 #1
+
+S1,2
+Aug 31, 18 01:00 PM
+
+1
+1
+
+ Spaghetti with Meatballs
+ Granville Island Summer
+AlefPint]
+
+$15.25
+$6.95
+
+Subtotal
+GST
+PLT
+Total
+
+www.osf ca
+
+$22.20
+$1.11
+$0 70
+$24.01
+
+Please Pay Your Server
+Gratuity Not Included
+
+GST# R105593933 RTG001
+

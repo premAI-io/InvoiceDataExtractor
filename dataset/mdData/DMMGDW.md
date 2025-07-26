@@ -1,0 +1,167 @@
+Online-Ticket
+
+ICE Fahrkarte
+Fahrtantritt am 16.10.2017
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Hamburg+City
+Über:
+Umtausch/Erstattung kostenlos bis 1 Tag vor Reiseantritt (Hinfahrt)
+
+VIA: (WBE/UE*SDL)*BSP
+
+ Berlin+City, mit ICE
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+1
+ICE Fahrkarte
+1
+Reservierung
+Zahlungsmittelentgelt 1
+Summe
+
+66,00€
+0,00€
+0,50€
+66,50€
+
+Preis
+
+MwSt D: 7%
+
+MwSt (D) 19%
+
+66,00€
+
+10,54€
+
+0,50€
+66,50€
+
+0,08€
+10,62€
+
+Hinfahrt:
+Gültig ab:
+
+16.10.2017
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+66,50€
+16.10.2017
+
+VU-Nr
+Gen-Nr
+
+4556695619
+NVGDA1
+
+Transaktions-Nr
+
+674148
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+DMMGDW
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 16.10.2017 15:15 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 16.10.2017
+
+Halt
+Hamburg Hbf
+Berlin Hbf (tief)
+Berlin Hbf (tief)
+Berlin Potsdamer Platz
+
+Gleis
+
+Datum Zeit
+16.10.
+16.10.
+16.10.
+16.10.
+
+ab 15:38 7
+an 17:24 1
+ab 17:47 1
+an 17:49 1
+
+Produkte
+ICE 801
+
+RB 18525
+
+Reservierung
+1 Sitzplatz, Wg. 14, Pl. 11, 1 Fenster, Großraum,
+Nichtraucher, Res.Nr. 8080 4015 2881 66
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+DMMGDW
+
+Seite 1 / 1
+

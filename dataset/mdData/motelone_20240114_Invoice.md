@@ -1,0 +1,146 @@
+Motel One München-Sendlinger Tor ệ Herzog-Wilhelrri’Straße 28 ậ 80331 München
+
+APاmeاster c٥nsu!t!ng GmbH
+Fbedrichstrasse 114Α
+
+10117 Berااn
+Germany
+
+Invoice
+
+Date:
+
+!nvo!ce number:
+Reservaron number:
+
+14.01.2024
+
+2024519001575
+
+519648951/1
+
+Room:
+
+Departure:
+
+617
+
+14.01.2024
+
+16.01.2024
+
+Breakfast (VAT 19%)
+Lodging
+
+Total Amount
+
+-
+
+Date
+آ4.01.2024 Mastercard
+otal paid
+
+Balance to pay
+
+Guest: Water, Oens , Room; 617 , from 14.01.2024 to 16.01.2024
+Service
+Best Price including Breakfast
+
+Num
+
+VAf
+
+2
+
+19,00%
+7,00%
+
+2
+
+2
+
+Prtce EUR
+
+Amount EUR
+
+125,90
+16,90
+109,00
+
+EUR
+
+251,80
+33,80
+218,00
+
+251,80
+
+Card-Number
+
+************ 2961
+
+Amount Currency
+
+Payment EU^
+-251,8ا
+
+EUR
+
+-251,80
+
+ãõõ
+
+In this calculation the following amounts of value added tax are contained:
+VAT
+|l9,00٠/o(Mwst)
+ا7,00 % (Mwst)
+
+Net Amount EUR
+
+203,74
+
+28,40
+
+5
+14,26ا
+
+- -
+
+33
+218,00|
+
+v٥٢gangsende:
+اًransaktاonsNummer^
+
+2024-01-15Τ00:49:41Ζ
+
+SignaturZaehler;
+PrCjfwert:
+Die Verbindung zu der Sicherheitseinrichtung ist ausgefallen.
+
+Motel One MOnchen-Sendlinger Tor
+Jesus I. Cordero
+
+Fron؛
+
+'¡ce Ager’
+
+Jetzt erOftnet;
+The Cloud One Hamburg-Kontorhaus
+und Motel One WUrzburgl
+
+Motel One Germany Betriebs GmbH, Motel One MUnchen.Sendlinger Tor, Herzog-Wilhelm-Straße 28,ร٥331 München
+Fon^+49 89 5177725-0.. Fax+49 89 5177725-10- E-mail:muenchen-sen dlinQertor@motel-one.com
+Directors: Daniel Müller, Stefan Lenze, Armin ROdel, Michael Wiessler
+AG München HRB 168292, Unique taxpayer number DE 254615074, VAT registration number 143/1؟4/106؟؛
+DE-ÖKO٧037
+py
+AG Munch
+
+HRB 6
+
+Unique
+
+9
+
+ا

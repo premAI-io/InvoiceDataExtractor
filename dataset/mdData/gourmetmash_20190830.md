@@ -1,0 +1,100 @@
+Makars Gourmet Mash Bar (West
+End)
+
+qi
+H2
+Edinburgh, E
+
+p!ace
+450
+
+0131  228 5100
+
+٥RDER:Tab!e 20
+
+Cash؛er^  falli
+30-Aug-2019  19:53:54
+
+1
+
+1
+
+1
+2
+
+1
+2
+
+ LambSha!tk
+
+ Boar  Sausage
+
+ Stewails  Edinburgh  Cold
+flobert Bur!is  Afe
+
+ Belhaven  Craft  Pilsner
+ Sticky Toffee
+
+£15.00
+
+Bacon  £0.00
+
+£12.00
+
+Cheese  £0.00
+
+£4.00
+
+£9.00
+
+£4.00
+
+£10.00
+
+£54.00
+
+Total
+
+٧AT
+
+%
+
+20
+
+Net
+
+45.00
+
+Tax
+
+9.00
+
+Gross
+
+54.00
+
+ECUS  ttd Reg#  342027 ٧AT  No:
+GB839829469
+
+Online:  https:/'/eu.cl0ver.C0m/r/
+SOZHB8XAZKC3T
+
+SOZHB8XAZKC3T
+
+Order  SOZHB8XAZKC3T
+
+،;ا,(٧ا'ا
+ ؛;
+
+littps./7eü
+
+ !’ا
+Iovei
+
+ا٧؛اا:١'
+ ؛;
+
+ ا-ا)(اا,;٧
+
+om/iip/clovei
+

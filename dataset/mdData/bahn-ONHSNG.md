@@ -1,0 +1,163 @@
+Online-Ticket
+
+ICE Fahrkarte
+Fahrtantritt am 30.09.2018
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Frankfurt(M)Flugh.
+Über:
+Umtausch/Erstattung kostenlos bis 1 Tag vor Reiseantritt (Hinfahrt).
+
+VIA: (F*MA*S/MZ*KA*RA*BAD*OG)*SIN
+
+ Konstanz+City, mit ICE
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+ICE Fahrkarte
+Reservierung
+Summe
+
+68,00€
+0,00€
+68,00€
+
+Preis
+
+1
+1
+
+MwSt (D) 19%
+
+68,00€
+
+10,86€
+
+68,00€
+
+10,86€
+
+MwSt D: 7%
+
+Hinfahrt:
+Gültig ab:
+
+30.09.2018
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+68,00€
+30.09.2018
+
+VU-Nr
+Gen-Nr
+
+4556695619
+N9ARC1
+
+Transaktions-Nr
+
+59825
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 30.09.2018 07:04 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 30.09.2018
+
+Halt
+Frankfurt(M) Flughafen Fernbf
+Offenburg
+Offenburg
+Konstanz
+
+Datum Zeit
+30.09.
+30.09.
+30.09.
+30.09.
+
+Gleis
+ab 07:52 Fern 5
+an 09:34 1
+ab 10:01 4
+an 12:16 3a
+
+Produkte
+ICE 101
+
+RE 4719
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+ONHSNG
+
+Reservierung
+1 Sitzplatz, Wg. 29, Pl. 36, 1 Fenster, Großraum,
+Nichtraucher, Res.Nr. 8015 3000 2506 62
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+ONHSNG
+
+Seite 1 / 1
+

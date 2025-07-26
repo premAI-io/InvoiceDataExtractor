@@ -1,0 +1,156 @@
+Online-Ticket
+
+ICE Fahrkarte
+Fahrtantritt am 19.11.2019
+
+1
+1, mit 1 BC50
+
+Flexpreis (Einfache Fahrt)
+Klasse:
+Erw:
+Hinfahrt: Berlin+City
+Über:
+Storno kostenfrei bis 1 Tag vor 1. Geltungstag.
+
+ Hamburg+City, mit ICE
+
+VIA: BSP*(WUM*SDL*SAW*UE*HAR/WBE*LWL)
+
+!
+n
+e
+k
+c
+n
+k
+
+i
+
+i
+
+t
+h
+c
+n
+e
+t
+t
+i
+b
+e
+d
+o
+c
+r
+a
+B
+
+Zahlungspositionen und Preis
+Positionen
+ICE Fahrkarte
+Reservierung
+Summe
+
+70,00€
+0,00€
+70,00€
+
+Preis
+
+1
+1
+
+MwSt (D) 19%
+
+70,00€
+
+11,18€
+
+70,00€
+
+11,18€
+
+MwSt D: 7%
+
+Hinfahrt:
+Gültig ab:
+
+19.11.2019
+
+Kreditkartenzahlung
+Betrag
+Datum
+
+70,00€
+16.11.2019
+
+VU-Nr
+Gen-Nr
+
+4556695619
+284128
+
+Transaktions-Nr
+
+603602
+
+Ihre Kreditkarte wurde mit dem oben genannten Betrag belastet. Die Buchung Ihres
+Online-Tickets erfolgte am 16.11.2019 16:26 Uhr. DB Fernverkehr AG/DB Regio AG,
+Stephensonstr. 1, 60326 Frankfurt, Steuernummer: 29/001/60002.
+
+Ihre Reiseverbindung und Reservierung Hinfahrt am 19.11.2019
+
+Herr  Jens walter
+Auftragsnummer:
+
+Zangenabdruck
+
+X41PAT
+
+Halt
+Berlin Hbf (tief)
+Hamburg Hbf
+
+Datum Zeit
+19.11.
+19.11.
+
+ab 07:40 7
+an 09:26 5
+
+Gleis
+
+Produkte
+ICE 1606
+
+Reservierung
+1 Sitzplatz, Wg. 27, Pl. 14, 1 Gang, Großraum,
+Nichtraucher, Handy, Res.Nr. 8056 5008 8376 44
+
+Wichtige Nutzungshinweise:
+-
+- Mit Ihrer Fahrkarte zum Flexpreis können Sie jeden Zug der gewählten Verbindung nutzen: mit einer IC/EC-Fahrkarte alle IC- und EC-Züge, mit
+
+Ihre Fahrkarte gilt nur zusammen mit einem amtlichen Lichtbildausweis (z.B. Personalausweis) oder Ihrer BahnCard.
+
+einer ICE-Fahrkarte auch alle anderen Züge.
+
+- Das Online-Ticket gilt nur für den unter "Fahrkarte" angegebenen Reiseabschnitt. Die Übersicht "Ihre Reiseverbindung" enthält gegebenenfalls
+
+Reiseinformationen zu Teilstrecken (z.B. Bus oder Straßenbahn), für die eine weitere Fahrkarte erforderlich sein kann.
+- Wenn Ihr Ticket den Zusatz "+City" oder "City mobil" zeigt, gilt dieser nur am Tag der Hinfahrt bzw. am Tag der Rückfahrt.
+- Es gelten die nationalen und internationalen Beförderungsbedingungen der DB AG. Innerhalb von Verkehrsverbünden und Tarifgemeinschaften
+
+gelten deren Bedingungen. Alle Bedingungen finden Sie unter: www.bahn.de/agb und www.diebefoerderer.de.
+
+Ihre Reisedaten können sich kurzfristig durch Bauarbeiten oder andere erforderliche Fahrplananpassungen ändern.
+
+Bitte informieren Sie sich kurz vor Ihrer Reise über mögliche Änderungen Ihrer Reisedaten unter www.bahn.de/reiseplan oder mobil über die
+App DB Navigator. Achten Sie auch auf Informationen und Ansagen im Zug und am Bahnhof. Wir danken Ihnen für Ihre Buchung und wünschen
+Ihnen eine angenehme Reise!
+
+X41PAT
+
+Seite 1 / 1
+

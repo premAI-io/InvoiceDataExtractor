@@ -1,0 +1,158 @@
+Bürgerlich
+
+fio ordiiiery НйшЬ11гв٠؛٠ г
+
+Bui-qerHch
+Iin  .اJinary  ιι»ιΐίηιιΐαΐίΓ
+
+Si'Borsui t  ا
+201)9ة  teabiirs
+ه»/
+357
+ا5ة3ة
+líwíí.hur aeri ich. الا)ا
+RECHNUNfj
+
+Rrtlke!
+Bii٢aer!؛c!i  PnBfflBs
+BayieLithei  Hall  0,  ة1 UK
+ctiyess  Biiraer  RaJitin
+Bayrsiithsr  Heil  о,Bl  UK
+Unlun  Rinas
+Suraer ìicti  Puwies
+Chassa  Ёусзег  M.Ẹ.J-؛y.ií
+
+JR؛؛
+4
+ة,
+ ٠0
+1
+50
+5 00
+4,00
+4.00
+1,50
+
+ !
+
+hvi.sţ
+
+а.
+25,00
+11,50
+20,00
+4,00
+4,00
+11,50
+
+fi
+й
+[I
+
+11
+0
+Ọ
+
+ì
+ у
+в X
+l
+x
+4χ
+1
+I
+1
+
+ة
+
+¿.ا  /ahlem
+
+I I»»  «0.00
+
+KiBdlthai،e  ا Silucard
+
+Ε!ΙΗ  «٥٠٥٥
+
+ В
+لآ
+
+I
+
+Μ؛1؛
+ί,  tOR
+2, 18 »
+ า\
+ آل-٠'،آف
+5,46 fi esant
+
+llecte  EUR
+37,02
+32,7?
+70,54
+
+Bruttu
+
+UR ؛؛
+
+45,00
+35,00
+
+Bie  Rust.  uurJe  auf  Basis  dei  tlnřelpusltlnnen
+Berschnet  Iinj  aerunJet.
+
+Rn¿ahl  Kunden
+
+1
+
+15.02.2023  22:00:41  Mr.  5-5l5t,3t
+
+؛!,ttuuiB  Uerslun:  OKtuROS  Cash  5.63.1
+
+llnsatzsteiiei
+؛0
+283695314
+Uielen  UaiiR  fut  Ihren  Besuch,
+nil  freuen  uns  anf  ein  lllederseheni
+
+ )(؛
+
+Serlennunner  kasse:
+Iransaktlunsnumner:
+Signaturyller:
+Erste  Bestellung:
+fıansaktlan  stari::
+Iransakttun  Ende;
+Slanatni :
+
+Olslt  US  un  Facehook
+uiiu.facebauk.cnn/burgerllcli.hanbura
+f6b4692b-b1ab-445d-8214
+309044
+696497
+2023-02.15T16;47;56[dItl
+2023-02-15T21;00;42[UlC]
+2O23-O2-l5ï21 :00:42fUfCl
+Из؛
+٧52
+؛
+٠ũ2ũjwMe2rũJ9٠j2ll6ŨFŨđqX5ay962U،i
+2Xf9٥5fij٠ehMnCUBdKlg
+
+РииЬЗ٧п
+
+٠e5dtfE
+
+5100р
+
+::
+
+»٠;
+
+,(/
+
+-
+
+(
+П|НгхЬШ
+£؛
+

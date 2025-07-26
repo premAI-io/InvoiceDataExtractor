@@ -1,0 +1,118 @@
+Eggspectation
+
+190 Ste-Cdlhel ille Ouest
+514－288…644 8
+
+8:66:41 Nal･�,
+
+Seple1111)IE 2024
+
+1()
+,,44725] TBLi52,
+
+１
+
+１
+
+１
+
+しAIf
+GRANI)
+JI｣S
+[(IG9IRAVAGANZA
+FI(ENCH I(IA91
+
+U' ']RA
+
+901!9-TO"|"AI
+{t,1x,2)
+IPS
+1VQ (tdx,:))
+
+$1 5()
+$9. 00
+$211)0
+$0. 00
+
+$15�剛〕
+11.78
+$164
+
+TO1~AL $40. 82
+
+IPI}
+
+(
+IVQ
+
+i}82(ﾘ493360 1W(1001
+il1212666544
+
+I Client
+
+VOll&I AVfZ LWE SHIVI
+PAUI_
+
+PA|{:
+
+(li
+
+N.
+
+POURIIU1M SIIGGHIIII)%
+6U(ilifSI[U nP 15%
+S.VP. |｣AVER VO1.R[ 3[|{VIEUII
+|,!FRC I
+
+PLFA9[ I)AY
+
+YOU|二I WAI I~ER.
+
+1.|4ANI<
+
+YI:)U
+
+ｰ
+
+←
+
+－．ｰ.
+
+------.__
+
+..‐ー
+
+-
+
+---.．
+
+.－ →
+
+二，苫 一 二
+
+�����
+
+IPS:
+
+1.78 $
+
+1VQ: 3.54 $
+
+~Wot&ql
+
+=
+
+40_ B2 $
+
+fACIURE ORIIGIWl.｢
+
+?024-09-lU（)8:38:U1Ml�V：14ﾉ“I�)ﾘ1-10562221
+EGGSPHjIATION
+(CONPl.IEX I)ESJARDINS)
+19(1,
+:。↑｜、 韮W ':iに､1も發司:] il
+罠＝ﾆｰ昌二＝.＝＝二二二::琴菩.皇一・二＝惠二.ぎ..".F二:二-一：.幸一瞥一二二二・二吉罵二言善
+
+RIJE SAI!､l l[-CATIIL!{川LOレION ｢REAL
+
+l

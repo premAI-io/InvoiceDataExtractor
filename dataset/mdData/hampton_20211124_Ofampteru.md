@@ -1,0 +1,164 @@
+Ofampteru
+
+by H.LT.N
+
+Room No:
+
+A٢r!va!  Date:
+
+Departu٢e  Date:
+
+Adu!t/Ch!!d:
+
+Room  Rate:
+
+Rate  Plan-
+
+AL:
+
+HH#
+
+TOTAL VAT
+
+Foااo  No/Che
+
+228 /NURQB
+
+23/11/2021  20:53:00
+
+24/11/2021
+
+1/0
+
+109.00
+
+2G2
+
+DE299767575
+
+194208Α
+
+Cash!er  !D:
+
+REF  NO
+
+Guest Charges
+
+CRED!T
+
+BALANCE
+
+6102.18
+
+66.82
+
+6109.00
+
+60.00
+
+541682
+
+541682
+
+541683
+
+BALANCE
+
+TOTAL
+
+61.44
+
+63.36
+
+6104.20
+
+6109.00
+
+AP!ME!S1ER C٥N1U1T!NG GMBH
+
+FREIDRICHSTR.  123
+
+10117
+
+BERHN
+
+GERMANY
+
+VAT!NV01CE:113638
+
+Conf!rmat!on  Number:  54029981
+
+JENSWAIIER
+
+HAMPION  FRANKFURI A!RP0R123/11/2021  20:54:00
+
+DATE
+
+DESCR!PT!ON
+
+23/11/2021
+
+GUESTROOM
+
+23/11/2021
+
+ROOM  VAT 7%
+
+23/11/2021
+
+MC .5562
+
+JUTU
+
+JUTU
+
+JUTU
+
+Tota!  Exc!uding VAT
+
+TOTAL VAT
+
+61.22
+
+63.14
+
+697.38
+
+60.22
+
+60.22
+
+66.82
+
+VAT  19%
+
+VAT 7%
+
+Room  VAT 7%
+
+Tota!  Invoice Amount
+
+Guest Signature -
+
+Debit  related verbiage
+
+Page:1
+
+Hampton  by  Hilton  Frankfurt Airport
+Thea-Rasche-Strasse  6,  60549  Frankfurt am  Main,  Germany
+telefon ا  telephone: ٠49-(0)69  959  29  29- о
+fax ا  fax:  +49-(0)69  959  29  29-  99
+e-maìl:  ¡nfo@hamptonfrankfurt-airport.de
+reservierungen ا  reservations:  fiampton.com
+
+Primestar Hospitality GmbH
+Eingetragene Anschrift I  Registered  Address:
+๘0  pro.work GmbH, Tauentzienstr.lS, 10789 Berlin, Germany
+USt-ldNr. I  VAT Number: DE299767575
+Amtsgericht Charlottenburg HRB 214074 I  U5T-!D: DE299767575
+Geschäftsführer: Andreas Erben
+Stadtsparkasse Augsburg, Haiderstraße 1-5: 86150 Augsburg,
+!BAN: DE44 7205 0000 0000 7757 83, B1C: AUGSDE77XXX
+
+hampt.n.com
+

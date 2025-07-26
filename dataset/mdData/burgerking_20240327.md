@@ -1,0 +1,443 @@
+罰
+
+固
+の
+で
+筐
+の
+参
+の
+轄
+鎧
+画
+
+勘
+
+可
+①
+準
+国
+遥
+』
+の
+で
+。
+”
+の
+Ｅ
+Ｅ
+◎
+邑
+蘭
+寝
+再
+』
+。
+
+劉
+
+宮
+の
+で
+富
+里
+夢
+①
+僅
+僖
+画
+
+SSP Deutschiand
+The Sql�旧11･e 24
+60549 F旧nkfurt am Nain
+DE 137185550
+
+499999999 SOT ､ s
+
+CHK 3030
+26 Mal･'24
+
+Eat
+
+lr,
+
+1 8K Nen(1 60uda Lover 8eef
+
+00uble
+
+l5‘39
+
+BK Gouda LUver 8eef
+00Llble
+8K Po川ies L
+
++ [11p
+
+BK PortiOn KetchUP
+
+BK Co1a Li9ht L
+
+2,46 19% NしISt.IH
+
+Net ｢0tal:
+SUbtotal
+
+15,39
+r12,93
+fl5,39
+
+fl5,39
+
+Payment
+Change OLIe
+r15,39
+GiroCal､d
+----------- Check C1osed -------
+
+r0,00
+
+��
+
+26 Nar'24 17:29
+Leipz19 Hbf
+Bur9er King
+04934 12248910
+
+St.
+
+Nr, 014 225 74838
+
+V1elen Oank fOI、Ihi､en Besuじ|1
+
+* *
+
+Kulldenbeleg
+* *
+Bu i･gel､Kill9 1_eiPzi9 Hbf
+|11.lly 8randt P1atz 5
+041()9 LeipZ19
+
+〈
+Ｕ
+Ⅱ
+Ｕ
+Ｒ
+Ｕ
+Ｔ
+ｌ
+
+６
+‐
+ｈ
+
+ｅ
+
+‐
+ｔ
+
+ｕ
+
+Ⅲ
+
+ｒ
+‐
+
+Ｚ
+
+ｅ
+
+ｅ
+
+９
+
+ｒ
+
+３
+
+Ｃ
+
+ｅ
+
+８
+Ｂ
+ｃ
+‘
+Ｔ
+Ｉ
+Ｌ
+一
+二
+
+‘
+ナ
+ー
+唱
+町
+Ｎ
+皿
+Ⅳ
+Ｍ
+－
+Ｎ
+ｍ
+
+４
+
+０
+
+〆
+１
+１
+
+陦
+ｌ
+
+１
+
+Ｃ
+
+戸
+ｂ
+（
+し
+【
+Ｕ
+
+ｅ
+
+Ｚ
+
+０
+戸
+上
+
+ｎ
+
+Ｒ
+〕
+
+ａ
+‐
+ｔ
+》
+ｌ
+
+０
+，
+一
+○
+》
+ｌ
+
+ｕ
+
+↑
+し
+淵
+Ｗ
+
+ｎ
+ｌ
+Ａ
+
+ｇ
+
+ｅ
+
+Ｑ
+〕
+
+Ｓ
+マ
+ー
+
+Ｓ
+Ｆ
+ｋ
+
+砧
+Ｋ
+
+肝
+
+ＫＡ（
+
+し
+
+ハ
+Ｕ
+
+〔
+〃
+ノ
+ー
+
+Ｄ７１
+
+ｑ
+
+デ
+。
+ｎ
+〕
+勺
+、
+〕
+
+９
+八
+Ⅱ
+叩
+リ
+
+八
+ｍ
+Ｕ
+
+０
+０
+
+へ
+”
+、
+〕
+ｎ
+叩
+Ｕ
+
+０
+
+川
+昌
+‐
+
+ｎ
+Ⅱ
+〕
+
+７
+１
+
+召
+
+０
+
+？
+典
+
+〔
+Ｈ
+Ｕ
+７
+ｊ
+
+ニ
+ハ
+Ⅱ
+〉
+Ⅱ
+Ⅱ
+〕
+八
+く
+，
+〕
+〔
+４
+１
+〕
+
+沁
+渥
+晒
+泡
+喧
+繊
+夢
+曾
+握
+国
+
+Nr .
+VU-NI･.
+Genellll1 9ull9s-Nr '
+.｢erl111nal - IO
+Pos-Info
+AS-Zeit 26.03.
+
+############0908 0"
+601190577
+072464
+640958g
+OO O75
+17:30 U
+
+§
+UO,｣0I｣08001/////3F0002///75C51002/$
+
+出
+
+EMV-Dater,
+
+…副＃
+
+*** Autol-is1erung erfo19tF**
+
+B1廿e Be le9 aufbelvahren
+
+｡
+”
+
+’増
+
+◎
+凸
+・・切
+寝
+再
+陛
+｡
+
+劃
+
+’
+Verbindung mlT qnderen Preisnochl6ssen. 8urger KIngobeh61↑
+sIch von die Akfion lederzeif qufgrund missbrduchliCher
+Verwendung oder unvorhersehboreirerheblicher komplikdtionen
+einzUSfellen. Der Rechfsweg is↑QusgeschIossen.
+
+deine Mem皿､悪
+und geniei3e
+Gratis-Pommes oder
+einen Gratis-Kame.
+
+Einfdch ouf www.bk-feedboCk-de.com gehen
+und deinen Besuch innerhdlb von 48 Stunden
+bewerfen.Geht gonz fix, versprochen!
+
+Zur Belohnung erh61tst du einen Code,
+diesen bi廿e hier eintrqgen:
+
+Bei deinem n6chsten Besuch zeigsf du deinen
+Kdssenze廿el vor und erh61fsf deine Grdtis-
+Pommes (klein) oder deinen Grdtis-Kq什ee (klein).
+
+Nur bel der Abgdbe eines mdxImdl 30 1bge qlfen kdssenbons
+in↑eilnehmendenRes↑our｡､↑s・Kelne Bcrquszchlung oder
+Verbindung mif onderen PreIsnqchl6ssen,Burger KIng･behdI↑
+sIch voli die Akfion lederze甘口ufgrund mIssbrdUchllcher
+Verwendung Oder unvorhersehborer erheblicher Komplikqtionen
+einzusTellen. Der Rechfsweg ist QusgeschIossen.
+
+deine Mem皿､悪
+und genief3e
+Gratis-Pommes oder
+einen Gratis-KaMe.
+
+EinfQch duf www.bk-feedbdck-de・com gehen
+und deinen Besuch innerhqlb von 48 Sfunden
+bewerfen. Gehf gonz fix, versprochen!
+
+Zur Belohnung erhaltsf du einen Code,
+diesen bilTe hier einfrdgen:
+

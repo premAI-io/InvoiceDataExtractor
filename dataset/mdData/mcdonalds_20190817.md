@@ -1,0 +1,53 @@
+204
+
+М(;Попа1с1'$  Oöutschland  UC
+Gl ockenyiesser  Wall  8-10
+20095  Harnbui'a
+lelefon:  040  32  69  34
+
+QUITTUNG
+
+«ORD  04  KS.  26
+ANZ  ARUkU.
+
+11/08./2019  21:47:52
+GESAMT
+7.99
+
+16لآا  Tim  ida  Beef  MS
+
+1  PoiNines  Frites  mittel
+
+1  KetUìup
+
+1  Соке  Zen)  0,4
+
+INNEN
+TOTAL-
+Credit  Sales
+
+St.Nr.ZOStlDNr.  143Z311/ÛÛ138
+BROIIO
+7.99
+
+.
+19.00 INC!. .  MwSl
+
+SATZ
+لآ
+
+7.99
+7.99
+
+MWST
+
+1.20
+
+Hat  1  ا١اآئاآ Thr  Bestich  gefal len?
+Feedback  geben  tind  Ix  kleinen  Softdrltik
+oder  Ix  kleinen  Raffee  gratis  eilialten!
+WWW.mcdonaIds.deZdelnfeedback
+b8lri-ksq2-c9d8
+
+Vielen  Oank  fno('  Ihren  Besucht
+

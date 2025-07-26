@@ -1,0 +1,97 @@
+wugiiitr
+ainirkt
+
+Laggner Augustiner Leipzig GmbH
+Charlottenstr. 56  16117  ا
+бегИп
+
+eetriebst. :  Markt  5-6
+
+64169  ا
+
+Leipzig
+
+leleten:  6341  24  77  61  77
+www.August1ner-Leipzig.de
+
+Rechnung
+3Ö-Sep-26/2Ö:11  RgNr:AR1316347
+Steuernummer:  36/682/75668
+Identnummer;  6Ε256425748
+llsch-Mr:  47  Beleg;  1669972683
+Es  bediente  Sie  s.Vorsatz
+
+ň  4,26
+2x  Edelstoft  6.5  1
+ň  4,56
+2x  Saftschorle  6,5  1
+Ix  Nürnberger  Rostbrat  B  16,96
+Ix  Leberkäse
+9,96
+2x  Aprlkosen-Fruchtstru  B  6,96
+
+MwSt.%
+Α=16,666
+6-  5,666
+
+MwSt
+2,46
+1,65
+
+Netto
+66
+15
+32,95
+
+idit 1ا
+
+9,66
+16,96
+9,96
+13
+
+Brutto
+17,46
+34,66
+
+I
+
+Eb
+52,66  Kredit*
+EU
+52,66  *Kredit*
+ISE  NIGHl  EINGERIGHlEl
+
+R
+R
+
+52,66
+52 66
+
+***  IIP  is  not  included  ***
+
+Herzlichen  Bank  und  aut  Wiedersehen!
+Wir  freuen  uns  auf  Ihren
+niichsten  Besuch.
+
+Ihi'  leam  des  Augustiner  Leipzig
+
+Hypersoft
+
+؛
+
+ãC،vSP  11  (HF33HS٠SSPDû
+
+٢Sf  Pí
+Hypersoft  GrnPH  Tel  ¿íupport  +49  (Ũ)4Ủ
+
+؛١
+
+V'4   D
+
+اا:ا21 ا
+ ٢1حم
+ ةاذ9ال5-اةآل
+
+لو
+

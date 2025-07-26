@@ -1,0 +1,145 @@
+-
+
+Cyberpoft Store Leipzig, Neumarkt 29-33, 04109 Leipzig
+
+Cyberport Store leاp2اg  Kassenkunde
+Neumarkt  29-33
+04109  Leipzig
+
+II
+
+Rechnung
+
+Ihre  Referenznr.
+
+0904483033  /  30-07-2022
+
+Kunde
+
+7163789
+
+Rechnungsnr./-datum
+
+6001215715  /  30.07.2022
+
+Lieferscheinnr./-datum
+
+605330978
+
+/  30.07.2022
+
+Bestelinr./-datum
+
+904483033
+
+/  30.07.2022
+
+Verkaufsbelegart
+
+Auftrag  Store
+
+Zahlart
+
+Kreditkarte  Mastercard  Store
+
+T ransaktionsnummer
+
+Seriennummer  TSE
+
+19654627559810188739
+
+30.07.2022  14:21:48  Uhr
+
+Vorgangsbeginn
+
+Vorgangsende
+
+Seite
+
+٦
+Lieferscheindatum  entspricht  dem  tiefer-  bzw.  Leistungsdatum!
+
+30.07.2022  14:21:50  Uhr
+٦
+
+؛
+
+Pos.
+
+Produkt-  bzw.  Leistungsbeschreibung
+
+Menge  USt.  (%)
+
+Einzelpreis
+
+1
+
+2
+
+5C44-04G
+Eve  Energy  -  2xSmarte  Steckdose  mit  Ver
+5C44-٥49
+Eve  Energy  -  Smarte  Steckdose  mit  Verbra
+
+(  RV08L1A13251,  RV0811A13252  )
+
+1
+
+19,0  ٠/٠
+
+42,90
+
+19,0  %
+
+Gesamtbetrag
+
+Im  Gesamtbetrag  entfialten  sind:
+
+Nettobetrag
+
+Umsatzsteuer
+
+EUR
+19,00./.  auf
+
+36,05  EUR
+
+Betrag  Brutto
+
+42,90  EUR
+
+42,90  EUR
+
+36,05  EUR
+6,85  EUR
+
+Die  Ware  bleibt  bis  zur  vollständigen  Bezahlung  unser  Eigentum.
+
+Die  Zahlung  erfolgte  per  Kreditkarte.
+
+Überzahlungen  werden  automatisch  erstattet.
+
+Wollen  Sie  Ihr  Altgerät  entsorgen?
+Sig  können  ein  entsprechendes  Elektrogerät  zu  Ihrem  bestellten  Neugerät  kostenlos  einsenden  oder
+abholen  lassen.  Nutzen  Sie  dazu  bitte  folgenden  link:  www.cyberport.de/altgeraete-entsorgung  ٠
+
+Cyberport  Store  Leipzig  -  Neumarkt  29-33,  04109  Leipzig
+
+Öffnungszeiten:  Mo-Sa  10-20  Uhr
+
+Geschäftsführer:  Reně  Bittner,  Simon  Frank,  Kai  Hollensteiner.  László  KovOcs.  Sebastian West؛ich _
+Registergericht:  Amtsgericht  Dresden  HRB  16246 I  Ust.-ldNr.:  DE195٥33395 I  Steuer-Nr.:  202/107/09526
+
+CyterportGmbH
+Am  Brauhaus  5
+01Ю9  Dresden
+
+E-Mail;  info@cyterport.de
+lelefon:  .49 351  3395-60
+Fax:  .49 351  3395-699
+
+Commerzbank  Freiburg
+IBAN:  DE 73 6808 0030 0723
+
+ 3036 00,  BIC:  DRES  DE  FF  680
+
