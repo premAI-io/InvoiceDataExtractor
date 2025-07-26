@@ -30,9 +30,9 @@ return the informations in a json format like this:
     "business_location": "City, State, Country"
 }
 
-If you don't find the informations, return null for the corresponding field, better to return null than to return a wrong value.
+If you don't find the informations, return null for the corresponding field. If no information is found, return null for all fields.
 
-Your response should be only the json object, no other text or comments.
+Your response should be only the json object, no other text or comments, and no markdown formatting (no \`\`\`json or \`\`\`).
 `;
 
 async function processInvoiceFiles() {
